@@ -1,5 +1,5 @@
 # ljqbnu.github.com
 coding amateur
 
-giyhub 不好用！！！！！！！！！！
+github 不好用！！！！！！！！！！
 ！！！！！！！！！！
